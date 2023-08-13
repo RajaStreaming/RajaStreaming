@@ -1,2 +1,2 @@
 
-<a href= "https://mrjackbetapp.online/"><Mrjack.bet app>
+<a href= "https://thejennymod.co"><Jenny mod>
